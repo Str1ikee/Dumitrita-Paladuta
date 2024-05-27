@@ -1,0 +1,2 @@
+# Dumitrita-Paladuta
+proiect
